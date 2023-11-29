@@ -7,20 +7,37 @@ Project Wolf Hunting (Korean: 늑대사냥; Hanja: Neukdaesanyang; lit. Wolf Hun
 
 Cast 
 Seo In-guk as Park Jong-doo[5]
+
 Jang Dong-yoon as Lee Do-il[5]
+
 Choi Gwi-hwa as Alpha[5]
+
 Park Ho-san as Lee Seok-woo[6]
+
 Jung So-min as Lee Da-yeon[5]
+
 Ko Chang-seok as Go Kun-bae[6]
+
 Jang Young-nam as Choi Myeong-ju[7]
+
 Sung Dong-il as Oh Dae-woong[8]
+
 Son Jong-hak as Soo-cheol[9]
+
 Lee Sung-wook as Kyung-ho[9]
+
 Hong Ji-yoon as Song Ji-eun[9]
+
 Jung Moon-sung as Kyu-tae[10]
+
 Lim Ju-hwan as Representative director[11]
+
 Kwon Soo-hyun as Jin Kang-woo[12]
+
 Jung Sung-il as Detective Jung Pil-sung[13]
+
 Kim Kang-hoon as Lee Do-il's son[14]
+
 Lee Hong-nae as Piercing
+
 Shin Seung-hwan as Mantis[15]
